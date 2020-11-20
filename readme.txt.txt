@@ -1,0 +1,1 @@
+Скриншоты и описания действий можно посмотреть по ссылке https://docs.google.com/document/d/1oDJRNVtLbC-W2hc4UHBaKZ1yyy1aeWNdweWRBskXSQQ/edit?usp=sharing
